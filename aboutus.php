@@ -31,10 +31,7 @@ and good expiry dates.
 
 We order our drugs from reputed international manufacturers and are made available for sale after careful scrutiny
 of the quality. This way we can spend more time and efforts to help you when you buy medicine online. These drugs
-sold in other countries are known by other brand names, but generically they are the same drugs.
-
-Online Medicine Purchase System strongly believes in maintaining patient's privacy. In case the delivery is not made on time, 
-is misplaced or damaged; a replacement or full refund is given.</pre>
+sold in other countries are known by other brand names, but generically they are the same drugs.</pre>
 	</div>
 
 </body>

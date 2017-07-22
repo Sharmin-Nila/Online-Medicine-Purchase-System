@@ -34,11 +34,7 @@ of our work philosophy, a claim endorsed by online medicine puchase system revie
 
 We believe that as we develop our work quality we will be one step closer to helping you enrich your lives with good health
 and happiness. We wish to see our consumers to live life filled with long life and comforts. This is AllDayChemist’s commitment
-towards the community.
-
-Our home delivery service provides utmost convenience to help you order drugs online without compromising on time and quality.
-Along with being well-recognized for dispersing high quality drugs inexpensively, we offer hassle-free services to our valued customers.
-For those requesting privacy of order, the consignments are sent in small bubble envelopes or card boxes for the same.</pre>
+towards the community.</pre>
 
 
 </html>
